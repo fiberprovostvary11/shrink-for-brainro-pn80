@@ -1,4 +1,4 @@
-
+shrink for brainrots updated Scripts offers the most advanced shrink for brainrots Script, with auto-farm and instant win. Perfect for dominating any
 
 
 
